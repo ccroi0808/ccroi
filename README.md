@@ -1,1 +1,1 @@
-# churchofchristtheresurrectedoneintl
+# churchofchristtheresurrectedone
